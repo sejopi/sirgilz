@@ -6,11 +6,11 @@
 
 - im alright with nicknames if i tolerate some of them
 
-- yes im mentally difficult but i dont have proper diagnosis on mental illnesses from the professionals yet. 
+- yes im mentally difficult but im already suspecting a few like c-ptsd NOT SAYING i have it; gotta get that proper diagnosis from the professionals though
 
 - i don't rlly care about characters shipping at all nor do i hate them
 
-- i use **they/them/theirs** pronouns + i highly prefer them the most; becus im **bigender**!! (male & female), however, when using cosplay skins, yes u can use the pronouns referring to my cosplays or kins; in mephiles skin im fine with **he/him** or **they/them**
+- i use **they/them/theirs** pronouns + i highly prefer them the most; becus im **bigender**!! (male & female), however, when using cosplay skins, yes u can use the pronouns referring to my cosplays or kins; in mephiles skin im fine with **he/him** or **they/them**; if turnin just use they them its simple
 
 - im **demiromantic, asexual**.
 
