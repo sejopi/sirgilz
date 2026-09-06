@@ -18,8 +18,8 @@
 
 - uhm if you **selfship** or **yumeship** with mephiles then dont look at me ok im not responsible for that because im A REAL PERSOn and not your mephiles. plz.
 
-- im **17** and was traumatized early childhood and i try to forget any of the shitty past experiences already, so currently trying to heal from it! sirgil is internally complex.. :oT  
-  **anyone under 13 please iwec or just dni ok!!**; *ANYONE WHOS IN MY FRIENDLIST R AN EXCEPTION.*
+- im **17** and was traumatized so early and i try to forget the past, so currently trying to heal from it
+  - **anyone under 13 please iwec or just dni ok!!**; *ANYONE WHOS IN MY FRIENDLIST R AN EXCEPTION.*
 
 - if *ex-friends*, DNI. yk who u are; along with whoever associated with them.
 
