@@ -10,7 +10,9 @@
 
 - i don't rlly care about characters shipping at all nor do i hate them
 
-- i use **they/them/theirs** pronouns + i highly prefer them the most; becus im **bigender**!! (male & female), however, when using cosplay skins, yes u can use the pronouns referring to my cosplays or kins; in mephiles skin im fine with **he/him** or **they/them**; if turnin just use they them its simple
+- i use **they/them/theirs** pronouns + i highly prefer them the most; becus im **bigender**!! (male & female), however, when using cosplay skins, yes u can use the pronouns referring to my cosplays or kins
+  - in mephiles skin im fine with **he/him** or **they/them**
+  - if turnin just use they them its simple
 
 - im **demiromantic, asexual**.
 
@@ -30,13 +32,13 @@
   
   yes ok i hear u but uhm just DNI kindly. :o(
 
-- for someone whos so internally complex i will have issues from myself, **HOWEVER**, theres a heads up anywya but ill try to overcome some of them, i have / can be:
+- i will have issues from myself, **HOWEVER**, theres a heads up anywya but ill try to overcome some of them, i have / can be:
   - selectiveness when choosing a friend
   - I GET CLINGY BE WARNED I WILL BE CLINGY.
   - jealousy / trust issues
   - overthinking
   - rlly nervous; paranoid
-  - self indulgent
+  - self indulgent (not smth necessarily bad tho
   - self doubt
   - GETS BORED easily if small / mild discussion; small talks
   - i tend to freeze / withdraw / go silent when im deeply disturbed; reminded of past trauma
