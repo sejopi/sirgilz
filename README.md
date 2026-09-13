@@ -2,7 +2,8 @@
 
 # hai :o)
 
-- i can be called **sejopi**, **sirgil**, or by my fictkin name, **mephiles** or **turnin**!
+- i can be called **sejopi** or **sirgil**
+   - theres more in my pronouns.cc website btw
 
 - im alright with nicknames if i tolerate some of them
 
