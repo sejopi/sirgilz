@@ -37,7 +37,7 @@
   - rlly affectionate; idk if this is a problem 2 u lol
   - jealousy / trust issues
   - overthinking
-  - rlly nervous; paranoid
+  - rlly nervous, anxious , paranoid .
   - self doubt
   - GETS BORED easily if small / mild discussion; small talks
   - i tend to freeze / withdraw / go silent when im deeply disturbed; reminded of past trauma
