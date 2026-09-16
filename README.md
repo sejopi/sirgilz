@@ -32,17 +32,17 @@
   yes ok i hear u but uhm just DNI kindly. :o(
 
 - i will have issues from myself, **HOWEVER**, theres a heads up anywya but ill try to overcome some of them, i have / can be:
-  - selectiveness when choosing a friend
-  - I GET CLINGY BE WARNED I WILL BE CLINGY.
+  - selective when choosing a friend
+  - clingy??
+  - rlly affectionate; idk if this is a problem 2 u lol
   - jealousy / trust issues
   - overthinking
   - rlly nervous; paranoid
-  - self indulgent (not smth necessarily bad tho
   - self doubt
   - GETS BORED easily if small / mild discussion; small talks
   - i tend to freeze / withdraw / go silent when im deeply disturbed; reminded of past trauma
   - gets silent agAIN if theres 3 or more ppl talking at once :oT (id just walk away so i can be alone)
-  - heavy preference for 1 on 1 talking rather than in groups srsly **it takes me like several minutes to decide** if i should be alone or int with many people though **unless youre a friend**, i will try.
+  - heavy preference for 1 on 1 talking rather than in groups srsly **it takes me like several minutes to decide** if i should be alone or int with many people , it depends on my mood during the day.
 
 - UH i tend to write many things at once so youll be seeing **wall of texts** from me
 
