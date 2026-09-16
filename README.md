@@ -7,20 +7,18 @@
 
 - im alright with nicknames if i tolerate some of them
 
-- yes im mentally difficult but im already suspecting a few like c-ptsd NOT SAYING i have it; gotta get that proper diagnosis from the professionals though
+- **idrk abt my mental diagnosis** (*referring bpd ocd autism etc.*) because i *didnt* **get medically diagnosed** yet, only *suspicion* of **C-PTSD**; not saying i have it.
 
 - i don't rlly care about characters shipping at all nor do i hate them
 
 - i use **they/them/theirs** pronouns + i highly prefer them the most; becus im **bigender**!! (male & female), however, when using cosplay skins, yes u can use the pronouns referring to my cosplays or kins
-  - in mephiles skin im fine with **he/him** or **they/them**
-  - if turnin just use they them its simple
 
 - im **demiromantic, asexual**.
 
-- uhm if you **selfship** or **yumeship** with mephiles then dont look at me ok im not responsible for that because im A REAL PERSOn and not your mephiles. plz.
+- uhm if you **selfship** or **yumeship** with my kins/fictkins then dont look at me ok im not responsible for that because im A REAL PERSOn and not your f/o. plz.
 
 - im **17** and was traumatized so early and i try to forget the past, so currently trying to heal from it
-  - **anyone under 13 please iwec or just dni ok!!**; *ANYONE WHOS IN MY FRIENDLIST R AN EXCEPTION.*
+  - **anyone under 13 or above 21 please iwec or just dni ok!!**; *ANYONE WHOS IN MY FRIENDLIST R AN EXCEPTION.*
 
 - if *ex-friends*, DNI. yk who u are; along with whoever associated with them.
 
@@ -74,6 +72,8 @@
 - **c/h** and **interacting**, **headrub** or **friendly kisses** are **encouraged**!! i dont have DNT stuff leik dat. (eh unless u make weird or suggestive body gestures at me, ill hide you for making me uncomfortable)
 
 - tonetags are not obligated, but i might ask u if i interpreted what ure saying as a lil confusing to me
+
+- you will often find me mainly at the **Homestuck** area; occasionally**Sonic The Hedgehog** or ***somewhere else near the spawn point***, anywhere but the ~~MCYT~~ area. I'll never go there.
 
 - ILL NEVER go to the mcyt area personally 
 
