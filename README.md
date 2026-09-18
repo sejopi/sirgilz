@@ -7,7 +7,7 @@
 
 - im alright with nicknames if i tolerate some of them
 
-- **idrk abt my mental diagnosis** (*referring bpd ocd autism etc.*) because i *didnt* **get medically diagnosed** yet, only *suspicion* of **C-PTSD**; not saying i have it.
+- **idrk abt my mental diagnosis** (*referring bpd ocd autism etc.*) because i *didnt* **get medically diagnosed** yet, only *suspicion* of **C-PTSD** , **ADHD** ; not *SAYING* i have it.
 
 - i don't rlly care about characters shipping at all nor do i hate them
 
