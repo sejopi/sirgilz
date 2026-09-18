@@ -19,6 +19,9 @@
 
 - im **17** and was traumatized so early and i try to forget the past, so currently trying to heal from it
   - **anyone under 13 or above 21 please iwec or just dni ok!!**; *ANYONE WHOS IN MY FRIENDLIST R AN EXCEPTION.*
+ 
+- if i **unfriended** you ambiguously dont come look for a reason or finding me; i have *my own personal issues* most of the time without telling.
+   - new people being added can be at risk for this (but im really selective i dont immediately unfriend u)
 
 - if *ex-friends*, DNI. yk who u are; along with whoever associated with them.
 
