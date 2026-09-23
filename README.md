@@ -27,12 +27,10 @@
 
 - im **bilingual**, but my eng is oke. most of the time i purposefully make broken grammars / some word references (mostly YTP hehe) / random nonsense / spelling mistakes cuz either jm typing 2 fast lol
 
-- yes i kin heavily, but WAYY more towards mephs. yeah.. :o/ snnxksnfkfb . if **doubles**, iwec / simply dni [unless i do / friends); + pls dont say smth to me like:
-  - **"im his no.1 fan"**
-  - **"mephiles is a villain u cant fictkin him"**
+- yes i kin heavily, but WAYY more towards copper. yeah.. :o/ snnxksnfkfb . if **doubles**, iwec / simply dni [unless i do / friends); + pls dont say smth to me like or just dni:
+  - **"im their no.1 fan"**
   - **"im X more than u"**
-  
-  yes ok i hear u but uhm just DNI kindly. :o(
+  - **"you cant fictkin X"**
 
 - i will have issues from myself, **HOWEVER**, theres a heads up anywya but ill try to overcome some of them, i have / can be:
   - selective when choosing a friend
@@ -76,11 +74,11 @@
 
 - tonetags are not obligated, but i might ask u if i interpreted what ure saying as a lil confusing to me
 
-- you will often find me mainly at the **Homestuck** area; occasionally**Sonic The Hedgehog** or ***somewhere else near the spawn point***, anywhere but the ~~MCYT~~ area. I'll never go there.
+- you will often find me mainly at the **Homestuck** area; occasionally**Sonic The Hedgehog** or ***somewhere else near the spawn point***.
 
 - ILL NEVER go to the mcyt area personally 
 
-- pls dont colorpicking / copy my skins / no inspo with or without my permission (god forbid u developing ur own creativity :o(
+- pls absolutely do not colorpicking / copy my skins / no inspo with or without my permission (god forbid u developing ur own creativity :o(
 
 - i tolerate **crowns** & **compliments**! :oD
 
@@ -96,4 +94,4 @@
 
 ### my interests, or something/someone that i rlly like! xo)
 
-- **MEPHILESMEPHILESMPEHILESTHEDAKR MEPHILES!!!!11!!** ,  **hwoarang**<333, guido & rossum, rams (the actual animal); my persona is a ram!!, steve fox, bryan fury, tod waggner AUGHHHHHSGHDF<3, cloud haetae cookie, pinecone cookie, turnin kaikai, copper wishling, coryxkenshin, kubzscouts, cs188, vo memes, fries; or any fried potaotes luul, aggretsuko, milkshakes - slushies, mint chocolate chip icecream, vast error, FOOD I LOVE EATIGN FOOD AUGHHSGD IM ATCUALY SELF INDULGENT , seal plushies & trinkets, pinnipeds, drawing (especially expressionism style!! its my way of coloring + drawing), **tekken series**, papa louie series, **zombie games / stuff** (left 4 dead 2, project zomboid ILYYSMM AAAAH), **music** (i only tried editing some n slowed down music lol), homestuck, stardew valley, cats (i rlly like Abyssinian cats), incredibox (Armed mod especially!!) toons universe, phasmophobia, adopt me (roblox), blair, south park, demonology, dollys factory, infectious smile, make a cake!, ABSURD stuff (mostly YTP yeah...), typologies, final destination 1, cookie run kingdom, STH series, Shipwrecked 64, My little pony, happy tree friends, regretevator, scp 3008 (roblox ver), ena dream bbq, team fortress 2, MC ARG (but i dont focus on popular ones), tawog, courage the cowardly dog, angry birds, and many more I haven't listed yet ;o)
+- **COPPERCOPPERCOPPERCOPPERWISHLING!!!!11!!** ,  **hwoarang**<333, guido & rossum, rams (the actual animal); my persona is a ram!!, steve fox, bryan fury, tod waggner AUGHHHHHSGHDF<3, cloud haetae cookie, pinecone cookie, turnin kaikai, mephiles the dark, coryxkenshin, kubzscouts, cs188, vo memes, fries; or any fried potaotes luul, aggretsuko, milkshakes - slushies, mint chocolate chip icecream, vast error, FOOD I LOVE EATIGN FOOD AUGHHSGD IM ATCUALY SELF INDULGENT , seal plushies & trinkets, pinnipeds, drawing (especially expressionism style!! its my way of coloring + drawing), **tekken series**, papa louie series, **zombie games / stuff** (left 4 dead 2, project zomboid ILYYSMM AAAAH), **music** (i only tried editing some n slowed down music lol), homestuck, stardew valley, cats (i rlly like Abyssinian cats), incredibox (Armed mod especially!!) toons universe, phasmophobia, adopt me (roblox), blair, south park, demonology, dollys factory, infectious smile, make a cake!, ABSURD stuff (mostly YTP yeah...), typologies, final destination 1, cookie run kingdom, STH series, Shipwrecked 64, My little pony, happy tree friends, regretevator, scp 3008 (roblox ver), ena dream bbq, team fortress 2, MC ARG (but i dont focus on popular ones), tawog, courage the cowardly dog, angry birds, and many more I haven't listed yet ;o)
