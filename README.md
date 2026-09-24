@@ -1,4 +1,6 @@
-<p align="center"><img src="https://file.garden/ZroW4OcqSGtS0a5j/mephiles%20foofs.gif" width="800" height="600"></img></a>
+<p align="center">
+
+<img width="540" height="405" alt="tumblr_ccf4ca0a345510d7fcab4d41aff73fc5_50c14b58_540" src="https://github.com/user-attachments/assets/a32db565-97f3-438b-b364-428feda7b53a" />
 
 # hai :o)
 
@@ -65,8 +67,7 @@
 
 <p align="center">
 
-<img width="599" height="275" alt="mephilesss" src="https://github.com/user-attachments/assets/0b58da24-c546-4a5a-9bf4-adebe4b80ee2" />
-
+<img width="500" height="280" alt="tumblr_nlronevZrb1u9sxq0o1_500" src="https://github.com/user-attachments/assets/0d60cd2f-7577-4166-8da8-1c8a4bd7e340" />
 
 ## pony town info! :o3
 
@@ -90,8 +91,9 @@
 
 ***
 
-<p align="center"><img src="https://file.garden/ZroW4OcqSGtS0a5j/tumblr-gif.gif" width="800" height="600"></img></a>
+<p align="center"><img width="250" height="160" alt="tumblr-gif (6)" src="https://github.com/user-attachments/assets/6583bf7f-677e-4019-8d5f-9c14a7f7f29a" />
+
 
 ### my interests, or something/someone that i rlly like! xo)
 
-- **COPPERCOPPERCOPPERCOPPERWISHLING!!!!11!!** ,  **hwoarang**<333, guido & rossum, rams (the actual animal); my persona is a ram!!, steve fox, bryan fury, tod waggner AUGHHHHHSGHDF<3, cloud haetae cookie, pinecone cookie, turnin kaikai, mephiles the dark, coryxkenshin, kubzscouts, No I'm Not a Human (I LOVE THE FIREFIGHTER!!<33), cs188, vo memes, fries; or any fried potaotes luul, aggretsuko, milkshakes - slushies, mint chocolate chip icecream, vast error, FOOD I LOVE EATIGN FOOD AUGHHSGD IM ATCUALY SELF INDULGENT , seal plushies & trinkets, pinnipeds, drawing (especially expressionism style!! its my way of coloring + drawing), **tekken series**, papa louie series, **zombie games / stuff** (left 4 dead 2, project zomboid ILYYSMM AAAAH), **music** (i only tried editing some n slowed down music lol), homestuck, stardew valley, cats (i rlly like Abyssinian cats), incredibox (Armed mod especially!!) toons universe, phasmophobia, adopt me (roblox), blair, south park, demonology, dollys factory, infectious smile, make a cake!, ABSURD stuff (mostly YTP yeah...), typologies, final destination 1, cookie run kingdom, STH series, Shipwrecked 64, My little pony, happy tree friends, regretevator, scp 3008 (roblox ver), ena dream bbq, team fortress 2, MC ARG (but i dont focus on popular ones), tawog, courage the cowardly dog, angry birds, and many more I haven't listed yet ;o)
+- **COPPERCOPPERCOPPERCOPPERWISHLING!!!!11!!** ,  **hwoarang**<333, guido & rossum, rams (the actual animal); my persona is a ram!!, steve fox, bryan fury, tod waggner AUGHHHHHSGHDF<3, cloud haetae cookie, pinecone cookie, turnin kaikai, mephiles the dark, coryxkenshin, kubzscouts, No I'm Not a Human (I LOVE THE FIREFIGHTER AND WIREFACE!!<33), cs188, vo memes, fries; or any fried potaotes luul, aggretsuko, milkshakes - slushies, mint chocolate chip icecream, vast error, FOOD I LOVE EATIGN FOOD AUGHHSGD IM ATCUALY SELF INDULGENT , seal plushies & trinkets, pinnipeds, drawing (especially expressionism style!! its my way of coloring + drawing), **tekken series**, papa louie series, **zombie games / stuff** (left 4 dead 2, project zomboid ILYYSMM AAAAH), **music** (i only tried editing some n slowed down music lol), homestuck, stardew valley, cats (i rlly like Abyssinian cats), incredibox (Armed mod especially!!) toons universe, phasmophobia, adopt me (roblox), blair, south park, demonology, dollys factory, infectious smile, make a cake!, ABSURD stuff (mostly YTP yeah...), typologies, final destination 1, cookie run kingdom, STH series, Shipwrecked 64, My little pony, happy tree friends, regretevator, scp 3008 (roblox ver), ena dream bbq, team fortress 2, MC ARG (but i dont focus on popular ones), tawog, courage the cowardly dog, angry birds, and many more I haven't listed yet ;o)
